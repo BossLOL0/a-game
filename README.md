@@ -1,4 +1,3 @@
-# a-game
-hey my first time codeing so i did my best
-
-what help meeeee you ready you better save your friend!
+# windows-setup
+hey i made a fun windows setup hope you like it :v 
+well i did this by my self so i worked hard on it  well here you go!
